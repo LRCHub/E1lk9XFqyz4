@@ -1,4 +1,4 @@
-# L'Arc～en～Ciel – Driver's High
+# L'Arc-en-Ciel – Driver's High
 
 > **歌詞登録ステータス：同期歌詞あり**
 
